@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Shyamsam07
-- 👀 I’m interested in 
+- 👀 I’m interested in to  grasp the new skill in  dynamic environment
 - 🌱 I’m currently learning python,data analysis
 - 💞️
 - 📫 How to reach me ... shyampal048@gmail.com
